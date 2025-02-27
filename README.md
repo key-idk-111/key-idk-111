@@ -31,3 +31,4 @@
 
 ## Discord
 - You can find me on Discord under the username **key.111**.
+- If you want a quick link to go to my profile, click this: [here](https://discord.com/users/1342398950921076826)
