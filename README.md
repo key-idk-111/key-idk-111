@@ -19,7 +19,7 @@
 - I create digital art, mostly drawing **cats** and sometimes **cat girls**.
 
 ## Old Computers
-- I emulate old systems like the **Commodore V2** (I think that's the name, if I'm not mistaken).
+- I emulate old systems like the **Commodore 64** (I think that's the name, if I'm not mistaken).
 
 ## Customization & Workflow
 - Customizing my setup is essential to maintaining focus. I love tweaking every detail to improve my workflow.
